@@ -1,0 +1,2 @@
+# srikajangmining
+GitHub Pages
